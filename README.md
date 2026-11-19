@@ -10,5 +10,5 @@ I hope to become an engineer someday but I don't like math.
 
 
 ## Marriane Audrey F. Soriano
-I'm 4'9 with 6ft energy and miss the kind of misery. I like listening to music and average 3k+ minutes of listening to music in a week. I'm like super duper cool by the way. 
+I'm 4'9 with 6ft energy and miss the kind of misery. I like listening to music and watching sad uhh ni mes. I'm like super duper cool by the way. 
 I hope to become a successful and rich person in the future. 
